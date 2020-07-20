@@ -1,3 +1,3 @@
-# For your many Problems 😖
+# For your many problems 😖
 
 # I have https://meine.solutions 😆
