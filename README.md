@@ -5,4 +5,4 @@
 
 
 ### _Developers sharing their certs be like_
-![gary-badges](https://github.com/LukasMeine/LukasMeine/assets/20716798/89cbf2cb-e766-4f04-9d3c-d3d4c1288659)
+![gary-badges](https://github.com/user-attachments/assets/769b3802-fdf4-4078-8bcb-b0652cf41302)
